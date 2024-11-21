@@ -1,5 +1,2 @@
-mike hawk
-<!---
-kenvamp/kenvamp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![image](https://github.com/user-attachments/assets/75300e28-80ac-4c40-ab37-ebeb87acc686)
+ME AND WHO 💔
